@@ -1,7 +1,7 @@
 **Alexander Moskalev**
 
 **Contacts:**
-spaicemanpr@gmail.com
+e-mail:spaicemanpr@gmail.com
 
 **ABOUT ME:**
 
